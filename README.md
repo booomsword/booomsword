@@ -8,6 +8,9 @@ _C+H / Inspiration is allowed._
 
 I won't stop you from copying my avatars, but it'd be nice if you didn't. Ask first for a skin to be _public domain_, if the request is accepted, I will create a folder with PDF Pages of it. _(...Or something like that.)_
 
+<div align="center"> This would be an example.
 <img width="200" height="200" alt="ezgif com-gif-maker" src="https://github.com/user-attachments/assets/fb31e655-cfce-4f0c-b23d-89e14cc093e6" />
 
 [CLICK HERE!](https://imgur.com/a/1-publicdomainponytowncoilphightingskin-items-extra-not-included-hbN6Hzt)
+
+<div align="center"> THIS PAGE IS UNDER MAJOR CONSTRUCTION, COME BACK LATER FOR MORE UPDATES!
