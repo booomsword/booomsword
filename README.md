@@ -10,4 +10,4 @@ I won't stop you from copying my avatars, but it'd be nice if you didn't. Ask fi
 
 <img width="200" height="200" alt="ezgif com-gif-maker" src="https://github.com/user-attachments/assets/fb31e655-cfce-4f0c-b23d-89e14cc093e6" />
 
-<div align="center"> [CLICK HERE!](https://imgur.com/a/1-publicdomainponytowncoilphightingskin-items-extra-not-included-hbN6Hzt)
+[CLICK HERE!](https://imgur.com/a/1-publicdomainponytowncoilphightingskin-items-extra-not-included-hbN6Hzt)
